@@ -4,8 +4,6 @@
 Monash University  
 📍 Expected Graduation: Dec 2026  
 ✉️ ygen0018@gmail.com  
-call me :18451803808
-
 GitHub: https://github.com/ygen0018 
 
 
