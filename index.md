@@ -4,6 +4,7 @@
 Monash University  
 📍 Expected Graduation: Dec 2026  
 ✉️ ygen0018@gmail.com  
+call me :18451803808
 GitHub: https://github.com/ygen0018 
 
 
@@ -116,10 +117,5 @@ I am primarily interested in **Data Analyst roles**, including:
 
 I value roles that emphasize **practical data analysis, cross-domain applicability, and business impact**.
 
----
 
-## Contact
-📧 Email: your_email@example.com  
-💻 GitHub: https://github.com/yourusername  
-🔗 LinkedIn: (optional)
 
